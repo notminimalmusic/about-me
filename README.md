@@ -11,7 +11,7 @@
 - [instagram](https://www.instagram.com/notminimalmusic)
 - [tiktok](https://www.tiktok.com/@notminimalmusic)
 - [my music on spotify](https://open.spotify.com/artist/492hXcxUscCaNrmeDquxiZ?si=1TmoS3inRgGug9TMxntjQg)
-- [my music on apple music](https://music.apple.com/playlist/my-productions/pl.u-XkD0vBET2VGBWG1)
+- [my music on apple music](https://music.apple.com/artist/notminimal/1678178197)
 - [my music on soundcloud](https://soundcloud.com/notminimalmusic)
 - [my music on audius](https://audius.co/reddino)
 
